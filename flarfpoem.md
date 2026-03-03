@@ -1,5 +1,6 @@
 ## I JUST ATE A BOWL OF CEREAL
 
+![cute cereal](https://as1.ftcdn.net/jpg/02/39/02/58/1000_F_239025820_AIrNpH0L2gfdWKXUCdc1HhMYFbJdIgVI.jpg)
 I ate a bowl of cereal  
 Just being in the kitchen ...  
 Is eating a bowl of cereal cheating?   
@@ -9,6 +10,7 @@ Is it okay to eat a bowl of cereal?
 Is Eating Cereal for Dinner Bad...  
 
 Is it a good idea to eat a bowl of cereal every morning...  
+How to eat a bowl of cereal
 
 Yes. Eating one bowl of cereal a day can be healthy.   
 Yes, a bowl of cereal with milk is tasty easy breakfast.   
