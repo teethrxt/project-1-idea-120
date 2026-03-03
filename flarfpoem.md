@@ -11,13 +11,14 @@ Is Eating Cereal for Dinner Bad...
 
 Is it a good idea to eat a bowl of cereal every morning...  
 How to eat a bowl of cereal
+![wikihowcereal](https://www.wikihow.com/images/thumb/9/9d/Eat-a-Bowl-of-Cereal-Step-2-Version-3.jpg/550px-nowatermark-Eat-a-Bowl-of-Cereal-Step-2-Version-3.jpg "pouring milk into cereal")
 
 Yes. Eating one bowl of cereal a day can be healthy.   
 Yes, a bowl of cereal with milk is tasty easy breakfast.   
 Is it okay to eat 3 bowls of cereal at night?  
 I just finished an entire box of cereal...  
 I just ate a bowl of cereal.  
-
+![cerealsize](https://img-s-msn-com.akamaized.net/tenant/amp/entityid/AA1KTCNh.img?w=750&h=422&m=6 "comparing cereal sizes")
 World's Most Boring I just ate a bowl of cereal.   
 The cereal tastes good, but how was the bowl?  
 Just ate my first bowl of cereal in about a year. We will see ...  
