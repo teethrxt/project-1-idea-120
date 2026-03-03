@@ -1,6 +1,6 @@
 ## I JUST ATE A BOWL OF CEREAL
 
-![cute cereal](https://as1.ftcdn.net/jpg/02/39/02/58/1000_F_239025820_AIrNpH0L2gfdWKXUCdc1HhMYFbJdIgVI.jpg)
+![cute cereal](https://as1.ftcdn.net/jpg/02/39/02/58/1000_F_239025820_AIrNpH0L2gfdWKXUCdc1HhMYFbJdIgVI.jpg "stock image of a drawn cute bowl of cereal")
 I ate a bowl of cereal  
 Just being in the kitchen ...  
 Is eating a bowl of cereal cheating?   
