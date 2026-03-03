@@ -26,4 +26,4 @@ I Ate Nothing but Cereal for a Week. Here's What Happened.
 I ate a bowl of cereal   
 I ate a bowl of cereal at 5:00a.m.   
 Is Cereal Healthy? 8 Side Effects of Eating It Every Day  
-
+![cerealgif](https://media.tenor.com/xOLnrotlfmQAAAAM/cereal.gif "milk being poured into a bowl of cornflakes")
